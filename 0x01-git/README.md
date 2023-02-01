@@ -1,1 +1,1 @@
-we are making progress
+coding is fun and cool
